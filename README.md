@@ -99,3 +99,45 @@
 | **Youku** | <https://youku.com> |
 | **YouTube** | <https://youtube.com> |
 | **and more...** | [Supported sites by yt-dlp](https://github.com/yt-dlp/yt-dlp/blob/master/supportedsites.md) |
+https://tokomesinku.com/product/pump-ksb-etaorm-sya-syt-200-150-400-centrifugal/
+https://tokomesinku.com/product/pump-oil-ksb-etanorm-sya-syt-150-125-315-centrifugal/
+https://tokomesinku.com/product/pump-ksb-etanorm-sya-syt-125-100-250-pompa-hot-oil/
+https://tokomesinku.com/product/pump-oil-ksb-etanorm-sya-syt-100-080-250/
+https://tokomesinku.com/product/pump-oil-ksb-etanorm-sya-syt-080-065-250-centrifugal/
+https://tokomesinku.com/product/pump-oil-ksb-etanorm-sya-syt-65-50-200/
+https://tokomesinku.com/product/pump-oil-ksb-etanorm-syt-65-40-200-centrifugal/
+https://tokomesinku.com/product/pump-ksb-etanorm-syt-050-032-160-centrifugal/
+https://tokomesinku.com/product/ksb-etanorm-etny-200-150-400-pump-centrifugal/
+https://tokomesinku.com/product/ksb-etanorm-etny-150-125-315-pump-centrifugal/
+https://tokomesinku.com/product/ksb-etanorm-etn-125-100-315-pump-sirkulasi/
+https://tokomesinku.com/product/ksb-etanorm-etn-100-080-250-pompa-air/
+https://tokomesinku.com/product/ksb-etanorm-etn-065-040-200-pompa-sirkulasi/
+https://tokomesinku.com/product/ksb-etanorm-etny-050-032-250-pompa-centrifugal/
+https://tokomesinku.com/product/pompa-ksb-etanorm-etn-050-032-200-centrifugal/
+https://tokomesinku.com/product/pompa-ksb-etanorm-etn-32-160-centrifugal/
+https://tokomesinku.com/product/gas-burner-olympia-gom-4-n-wm-kogyou/
+https://tokomesinku.com/product/gas-burner-olympia-gom-3-nwm/
+https://tokomesinku.com/product/gas-burner-olympia-gom-2-nwm-two-stage/
+https://tokomesinku.com/product/gas-burner-olympia-gom-1nwm-two-stage/
+
+https://tokomesinku.com/product/gas-burner-olympia-gom-0n-lpg-cng-pgn/
+https://tokomesinku.com/product/burner-olympia-om-4n-light-oil-solar/
+https://tokomesinku.com/product/burner-olympia-om-3n-light-oil-solar/
+https://tokomesinku.com/product/burner-olympia-om-2n-light-oil-solar/
+https://tokomesinku.com/product/burner-olympia-om-1n-light-oil-solar/
+https://tokomesinku.com/product/burner-olympia-om-0n-light-oil-solar/
+https://tokomesinku.com/product/burner-reiillo-gas-10-p-m-modulating/
+https://tokomesinku.com/product/burner-riello-gas-9-p-m-modulating/
+https://tokomesinku.com/product/burner-riello-gas-8-p-m-series/
+https://tokomesinku.com/product/burner-riello-gas-7-p-m-modulating/
+https://tokomesinku.com/product/gas-burner-riello-rs-250-m-italy/
+https://tokomesinku.com/product/gas-burner-riello-rs-190-italy/
+https://tokomesinku.com/product/gas-burner-riello-rs-130-italy/
+https://tokomesinku.com/product/gas-burner-riello-rs-100-italy/
+https://tokomesinku.com/product/gas-burner-riello-rs-70-italy/
+https://tokomesinku.com/product/gas-burner-riello-rs-50-cap-500-000-kcal/
+https://tokomesinku.com/product/gas-burner-riello-rs-38-two-tsgae/
+https://tokomesinku.com/product/burner-riello-r40-gs10-gs20-gas/
+https://tokomesinku.com/product/gas-burner-riello-r40-fs-20/
+https://tokomesinku.com/product/gas-burner-riello-r40-fs-10-100-000-kcal/
+
